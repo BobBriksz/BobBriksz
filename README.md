@@ -8,4 +8,5 @@ Here's where you can find me!
 [Twitter](https://twitter.com/bobbyBri)
 
 If your so inclined, here is my resume:
+
 [RESUME](https://docs.google.com/document/d/1hDmTA7U98VNOooRfa7fObJngSUQbQEAKwinqNr94NuU/edit?usp=sharing)
